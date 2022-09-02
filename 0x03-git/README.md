@@ -1,1 +1,1 @@
-create repo jus out anything
+create repo jus out anything rick and morty
